@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Spacejellie
-- 👀 I’m interested in video games, character design, knitting/crochetting, space, and much more
+- 👀 I’m interested in Video games, Character design, Knitting/crochetting, Astronomy, and much more!
 - 🌱 I’m currently learning Game Development/Design, Japanese and Mandarin, and Web Design
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
